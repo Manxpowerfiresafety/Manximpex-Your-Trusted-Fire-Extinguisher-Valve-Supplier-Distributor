@@ -31,5 +31,5 @@ Visit our website: https://manximpex.com/abc-valve-small-handle-cloned-2206/ <br
 <h2>follow us</h2>
 <li>Facebook: https://facebook.com?manximpex/</li>
 <li>Instagram: https://instagram.com/manximpex/</li>
-<li>LinkdIn: https://in.linkdin.com/company/manx-impex</li>
+<li>LinkdIn: https://in.linkdIn.com/company/manx-impex</li>
 <b>Subscribe us on Youtube: https://youtube.com/@manximpex</b>
